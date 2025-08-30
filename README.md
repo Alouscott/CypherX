@@ -1,4 +1,4 @@
-<h1 align="center"> 𝐂𝐘𝐏𝐇𝐄𝐑 𝐗 </h1>
+<h1 align="center"> 一═デ︻ 😈🦅ᴀʟᴏᴜꜱᴄᴏᴛᴛ🅱️🅰️Ⓜ️🦅 ︻デ═一 </h1>
 
 <p align="center">
   <a href="https://github.com/Dark-Xploit/CypherX">
